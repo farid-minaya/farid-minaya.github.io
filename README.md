@@ -1,1 +1,0 @@
-# farid-minaya.github.io
